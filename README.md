@@ -2,6 +2,8 @@
 
 im a high school drop-out
 
+|ω·`)
+
 ## langs i can use
 
 🇬🇧 Eng: certain technical topics
