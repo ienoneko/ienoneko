@@ -2,6 +2,8 @@
 
 im a high school drop-out
 
+19yo ♂️
+
 |ω·`)
 
 ## langs i can use
